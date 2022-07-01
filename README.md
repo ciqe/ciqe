@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Earth**
 
-- ⚡ Fun fact **I am from Earth**
+- ⚡ Fun fact: **"I am from Earth"**
 
 <br><br>
 
